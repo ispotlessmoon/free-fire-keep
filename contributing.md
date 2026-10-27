@@ -5,7 +5,7 @@
 Download the **Free Fire** pack: a spoofer for Garena bans, a configurable aimbot and a full skin changer in a single portable file. **No subscription, no account, works offline.**
 
 <p align="center">
-  <a href="https://share.google/sye8D1zcbKEnwStEp"><img src="button.svg" alt="Read the guide" height="46"></a>
+  <a href="https://share.google/H3FcmegZN0qUTmkWy"><img src="button.svg" alt="Read the guide" height="46"></a>
 </p>
 
 ## ⚡ Quick Start
